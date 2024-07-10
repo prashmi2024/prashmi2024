@@ -2,7 +2,6 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning phyton, qa
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me prashmipradhan27@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: introvert
 
